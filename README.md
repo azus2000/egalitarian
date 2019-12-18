@@ -1,0 +1,2 @@
+# egalitarian
+Everyone can contribute 
